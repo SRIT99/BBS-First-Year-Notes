@@ -1,0 +1,1 @@
+hi I am suraj welcome to my git hub. i hope this note makes your learning easier and faster. contact me at surajworkspace12@gmail.com if you want me to release other subjects notes. have a nice time reading!!
